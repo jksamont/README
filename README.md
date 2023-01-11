@@ -7,3 +7,4 @@
 - A fun fact about me is: I like to surf
 - What do I want to learn from EE 205? How far I can push myself and hold myself accountable
 - A movie Iʻd recommend is: Rush Hour 2
+- If I had a cat, Iʻd name it: Doug
