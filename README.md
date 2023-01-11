@@ -1,0 +1,9 @@
+- Hi, Iʻm Joshua Samonte
+- Iʻm interested in programming and building computers
+- Iʻm currently learning about computers and circuits
+- Iʻm originally from Oʻahu
+- Iʻm a Sophmore in Computer Engineering
+- I chose my major because computers and technology has always fascinated me
+- A fun fact about me is: I like to surf
+- What do I want to learn from EE 205? How far I can push myself and hold myself accountable
+- A movie Iʻd recommend is: Rush Hour 2
